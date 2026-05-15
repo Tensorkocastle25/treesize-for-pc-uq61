@@ -1,4 +1,4 @@
-# 
+# elite Plugin for TreeSize for PC | TreeSize for Windows - disk-space-analysis and duplicate-detection offers the most advanced TreeSize for PC | TreeSize for Windows plugin, with
 
 
 
